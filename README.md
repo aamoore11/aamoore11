@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aamoore11
-- 👀 I’m interested in holistic self care, astrology, and personal development.
+- 👀 I’m interested in holistic self care, astrology, and personal advancement.
 - 🌱 I’m currently learning software development
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
