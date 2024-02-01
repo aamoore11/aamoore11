@@ -3,7 +3,7 @@
 
 https://github.com/aamoore11/aamoore11/assets/158075430/5b6d25cf-1675-4be1-879c-44e77adee145
 >
-Miss multitalented + multifaceted
+ ***multifaceted***
 
 I am a licensed esthetician invested in hoslistic self care, astrology enthusiast, level 86 scientist, product developer, + personal growth advocate. 
 > 
