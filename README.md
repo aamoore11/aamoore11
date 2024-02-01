@@ -13,7 +13,7 @@ I’m interested in technological advancement correlating to:
 > - website development
 > - graphic design
 > 
- I’m currently learning software developmentvia HTML, CSS, + Ja vascript.
+ I’m currently learning software developmentvia HTML, CSS, + Javascript.
 >
 >
 ![Readme Quotes](https://quotes-github-readme.vercel.app/api?type=horizontal&theme=tokyonight&quote=you+must+rage+war+on+the+weakest+parts+of+yourself+in+order+to+become+stronger.)
