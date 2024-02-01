@@ -8,7 +8,7 @@ https://github.com/aamoore11/aamoore11/assets/158075430/5b6d25cf-1675-4be1-879c-
 I am a licensed esthetician invested in hoslistic self care, astrology enthusiast, level 86 scientist, product developer, + personal growth advocate. 
 > 
 I love brain games and broadening my horizons.
-I’m interested in technological advancement correlating to:
+I’m interested in technological advancements correlating to:
 > - cybersecurity
 > - website development
 > - graphic design
