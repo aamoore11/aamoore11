@@ -1,8 +1,11 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4E2C1E&random=false&width=435&lines=Hi%2C+I'm+Amya+%3C3)](https://git.io/typing-svg)
 
 
-https://github.com/aamoore11/aamoore11/assets/158075430/5b6d25cf-1675-4be1-879c-44e77adee145
->
+
+
+https://github.com/aamoore11/aamoore11/assets/158075430/bedae65f-c7a7-4eb0-aff9-1220cb3c9f74
+
+
  ***multifaceted***
 
 I am a licensed esthetician invested in hoslistic self care, astrology enthusiast, level 86 scientist, product developer, + personal growth advocate. 
