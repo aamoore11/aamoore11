@@ -6,7 +6,7 @@
 https://github.com/aamoore11/aamoore11/assets/158075430/bedae65f-c7a7-4eb0-aff9-1220cb3c9f74
 
 
- ***multifaceted***
+ ***(de)Coding the (U)niverse***
 
 I am a licensed esthetician invested in hoslistic self care, astrology enthusiast, level 86 scientist, product developer, + personal growth advocate. 
 > 
